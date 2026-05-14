@@ -1,4 +1,4 @@
-#  
+#  stealth Script for dragon adventures is the best dragon adventures Script, featuring undetectable and auto-heal. Safe and powerful for all your needs.
 
 
 
